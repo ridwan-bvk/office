@@ -1,0 +1,25 @@
+
+Task Notification Email has been sent to yosefp@bvk.co.id at 2017-07-03 09:30:20
+Task Notification Email has been sent to hardian.supri@laxono.us at 2017-07-03 09:30:24
+Task Notification Email has been sent to dirumum@laxono.us at 2017-07-03 09:31:39
+Task Notification Email has been sent to rusmandi@laxono.us at 2017-07-03 09:46:56
+Task Notification Email has been sent to sumarsono@laxono.us at 2017-07-03 09:46:59
+Task Notification Email has been sent to hasnanda@ham.go.id at 2017-07-03 09:47:03
+Task Notification Email has been sent to hardian.supri@laxono.us at 2017-07-03 09:47:08
+Task Notification Email has been sent to diryan@laxono.us at 2017-07-03 09:47:12
+Task Notification Email has been sent to surahman.rio@laxono.us at 2017-07-03 09:47:15
+Task Notification Email has been sent to dirumum@laxono.us at 2017-07-03 09:47:19
+Task Notification Email has been sent to mukidi@laxono.us at 2017-07-03 09:47:23
+Task Notification Email has been sent to afrisal.sambo@laxono.us at 2017-07-03 09:47:27
+Task Notification Email has been sent to mahmud@laxono.us at 2017-07-03 09:47:30
+Task Notification Email has been sent to tonny.halim@bvk.co.id at 2017-07-03 09:47:34
+Task Notification Email has been sent to kabag_mobdan@laxono.us at 2017-07-03 09:47:38
+Task Notification Email has been sent to thalim06@gmail.com at 2017-07-03 09:47:42
+Task Notification Email has been sent to brahmantiyo.andreas@gmail.com at 2017-07-03 09:47:45
+Task Notification Email has been sent to staff_tu@laxono.us at 2017-07-03 09:47:49
+Task Notification Email has been sent to staff_umum1@laxono.us at 2017-07-03 09:47:53
+Task Notification Email has been sent to andreas.brahmantiyo@bvk.co.id at 2017-07-03 04:14:59
+Task Notification Email has been sent to dirsdm@laxono.us at 2017-07-03 05:32:09
+Task Notification Email has been sent to dirsdm@laxono.us at 2017-07-03 05:32:28
+Task Notification Email has been sent to dirsdm@laxono.us at 2017-07-03 05:32:51
+Task Notification Email has been sent to dirsdm@laxono.us at 2017-07-03 05:33:10
